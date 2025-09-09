@@ -13,3 +13,11 @@ upto 10th std I'm very happy,after coming to 11th i have undergone many depressi
 last 1 month of exam i have studied and in 12th also many depressions for me,
 but now I'm mooved on completely from everything.
 I have more bestfriend inn boys and girls and i will give equal importance to everything and it's my character.I'm a jolly type person.
+
+In my family there are 4 persons-Me,My father,My mother and my sister.
+My father name is Balasubramaniam.B.V.
+My mother name is umamaheswari.B
+My sister name is Srimathi.B
+we are living a beautiful life,we understands each and every situations 
+At times in our family some fights are happend then the fights also enjoyable 
+me and my sister will  fight only always.my mother will support for me only then my sister will scold my mother.
