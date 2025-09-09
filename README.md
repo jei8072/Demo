@@ -28,3 +28,6 @@ some miscommunications are happened with her.
 Now she is on her route,and I'm in my route.I have seen her like a bestfriend.
 but she didn't imagined me as a friend itself, she just replied to me,but I have learned a biggest lesson in my life.
 then i just think about her at sometimes.she is happy with her friends.I'm also happy with my circle of friends.
+
+sir, thankyou for coming to take class for me, you have already came to my class in onboarding session,there I like your talkings
+there I thought he need to come to my class,same as you came,I liked your sessions,then I like your voice seriously.
